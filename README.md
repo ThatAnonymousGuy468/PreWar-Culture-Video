@@ -168,6 +168,8 @@ Happy Artur: https://www.reddit.com/r/Fallout/comments/1pl204l/fallout_fan_proje
 
 Videos:
 
+1999 A.D.: https://archive.org/details/1999-AD-1967-/1999-a-d-1967-10mbps.mp4
+
 Desert Bus (Sega CD) - Angry Video Game Nerd (AVGN) | Cinemassacre: https://www.youtube.com/watch?v=RFi2vcseEz8
 
 1950s Lifelong Criminal Reveals WHY He Did It | David Hoffman: https://www.youtube.com/watch?v=37YknwAr85Y
